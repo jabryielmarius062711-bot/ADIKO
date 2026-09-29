@@ -1,0 +1,2 @@
+# ADIKO
+lOVE YOUU
